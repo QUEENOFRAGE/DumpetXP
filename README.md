@@ -1,4 +1,4 @@
-4「 I can't upload photos deal with decortive text for now 」
+「 I can't upload photos deal with decortive text for now 」
 
 \(*´▽｀*) /  HAII !! Pleasure to 'meat' you. like puns and dad jokes (i think you can tell..) i also use dark humor <3
 
@@ -13,4 +13,4 @@ i LOVE drawing anything that comes to my mind, i have more than 35 oc's and they
 
 🗣 I speak ; 🇺🇲, 🇹🇷, 🇸🇾 and 🇪🇸 i don't speak german but i wish i could :(
 
-⚠️iwc : check my pronouns.cc (it contains alot of information) 
+⚠️iwc : check my pronouns.cc
