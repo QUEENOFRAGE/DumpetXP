@@ -13,4 +13,4 @@ i LOVE drawing anything that comes to my mind, i have more than 35 oc's and they
 
 🗣 I speak ; 🇺🇲, 🇹🇷, 🇸🇾 and 🇪🇸 i don't speak german but i wish i could :(
 
-⚠️iwc : check my pronouns.cc
+⚠️iwc : check my pronouns.cc 
