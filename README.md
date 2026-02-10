@@ -4,6 +4,8 @@
 
 im in MANY fandoms, feel free to yapp ur interests and reccomend stuff (*^^*) 
 
+| #🩷 ENTP (i use truity) | i love pink <3 | Keychain collector !! |
+
 My favorite label is –>【 🌈 FANTASY ARTIST 🌟 】
 
 (*^▽^)/★*☆♪ Context :
