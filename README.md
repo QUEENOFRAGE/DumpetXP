@@ -6,9 +6,9 @@ im in MANY fandoms, feel free to yapp ur interests and reccomend stuff (*^^*)
 
 | #🩷 ENTP (i use truity) | i love pink <3 | Keychain collector !! |
 
-My favorite label is –>【 🌈 FANTASY ARTIST 🌟 】
+My labels –> https://crazydevillady.carrd.co
 
-(*^▽^)/★*☆♪ Context :
+(*^▽^)/★*☆♪
 i LOVE drawing anything that comes to my mind, i have more than 35 oc's and they're all connected to eachother- i ussaly make lore videos or funny meme's out of it but i mainly draw them :D 💗
 
 ✦ I am a Traditional and Dijital artist :0 i mostly draw on Paper when im bored, Dijital art is a little bit more complicated to explain –_–'
