@@ -13,5 +13,3 @@ i LOVE drawing anything that comes to my mind, i have more than 35 oc's and they
 ✦ I am a Traditional and Dijital artist :0 i mostly draw on Paper when im bored, Dijital art is a little bit more complicated to explain –_–'
 
 🗣 I speak ; 🇺🇲, 🇹🇷, 🇸🇾 and 🇪🇸 i don't speak german but i wish i could :(
-
-⚠️iwc : https://pronouns.cc/@xD.Daisyx
