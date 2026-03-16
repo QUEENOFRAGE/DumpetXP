@@ -4,7 +4,7 @@
 
 im in MANY fandoms, feel free to yapp ur interests and reccomend stuff (*^^*)
 
-iwc PLEASE 🙏 (go check my pronouns.cc page for more info about it)
+iwc PLEASE 🙏 (go check my pronouns.cc page for more info about it or ask me idk)
 
 #🩷 im a.. | pink lover <3 | item collector !! | a Tomboy >:D |
 
