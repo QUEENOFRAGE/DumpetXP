@@ -1,6 +1,8 @@
  (*´▽｀*)  HAII !! Pleasure to 'meat' you <3
 
- ■ | pink lover <3 | item collector !! | Tomboy >:D | Ambiverted ! | ENTP (i use truity) | Billingual :o | 
+ "i would use my wish to re-write a peacefull world just for you to live in... but you wouldn't understand"
+
+| pink lover <3 | item collector !! | Tomboy >:D | Ambiverted ! | ENTP (i use truity) | Billingual :o | 
 
 im in MANY fandoms, feel free to yapp ur interests and reccomend stuff (*^^*)
 
